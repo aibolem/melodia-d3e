@@ -1,9 +1,16 @@
-<img width="1138" height="188" alt="image" src="https://github.com/user-attachments/assets/270e1106-e760-413c-8131-baf81dfdf6cc" />
+![YFHF2078](https://github.com/user-attachments/assets/0a587c14-6f09-4847-9a31-83e4802449e0)
 
 # aibolem/melodia-d3e .midi visualisation on https://www.youtube.com/@Aibolem
 
-![YFHF2078](https://github.com/user-attachments/assets/0a587c14-6f09-4847-9a31-83e4802449e0)
+REMBÆЯuNg great 🎨 ARTWEST'S från mitt ☶ d'bARgen ...
 
+
+<img width="1138" height="188" alt="image" src="https://github.com/user-attachments/assets/270e1106-e760-413c-8131-baf81dfdf6cc" />
+
+
+
+
+https://youtu.be/Qr0FVkjEvGU
 
 
 based on TemPlate:
