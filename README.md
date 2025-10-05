@@ -7,6 +7,8 @@ REMBÆЯuNg great 🎨 ARTWEST'S från mitt ☶ d'bARgen ...
 
 <img width="1138" height="188" alt="image" src="https://github.com/user-attachments/assets/270e1106-e760-413c-8131-baf81dfdf6cc" />
 
+# 159
+
 Bach, JS - BWV-0887 No-18 Well Tempered Clavier
 
 Bach, JS - BWV-0887 No-18 Well Tempered Clavier.mid
@@ -15,7 +17,24 @@ https://youtu.be/IBdOxARF3GM
 
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/cc90215b-fa4c-4d23-be2e-4f43c2fb389b" />
 
+# 1171
 
+Kancheli_Giya_Is_aq_aris.mid
+
+https://youtu.be/4A3qLK24Tw0
+
+<img width="914" height="737" alt="image" src="https://github.com/user-attachments/assets/b2e820a4-94a6-4887-a30b-ec5cb516b11a" />
+
+# 1915
+
+Tchaikovsky - Waltz of the Flowers.mid
+
+https://www.youtube.com/watch?v=0joWHF7VzvA
+
+<img width="1257" height="628" alt="image" src="https://github.com/user-attachments/assets/e5cc87f2-9105-479a-be06-130dbbfd2add" />
+
+
+# 1922
 
 JossePe Verdi V S 
 
@@ -25,21 +44,11 @@ https://youtu.be/Qr0FVkjEvGU
 
 <img width="1365" height="713" alt="image" src="https://github.com/user-attachments/assets/ba20d170-88f1-4652-8b35-e75e037a0200" />
 
-Tchaikovsky - Waltz of the Flowers.mid
-
-https://www.youtube.com/watch?v=0joWHF7VzvA
-
-<img width="1257" height="628" alt="image" src="https://github.com/user-attachments/assets/e5cc87f2-9105-479a-be06-130dbbfd2add" />
-
-Giya Kancheli_Is_aq_aris.mid
-
-https://youtu.be/4A3qLK24Tw0
-
-<img width="914" height="737" alt="image" src="https://github.com/user-attachments/assets/b2e820a4-94a6-4887-a30b-ec5cb516b11a" />
 
 
 
 ```
+
 Albeniz - Espana (Spain) Op-165 Capricho Catalan.mid
 
 Albeniz - Espana (Spain) Op-165 Malaguena.mid
