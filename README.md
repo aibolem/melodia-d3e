@@ -7,6 +7,15 @@ REMBÆЯuNg great 🎨 ARTWEST'S från mitt ☶ d'bARgen ...
 
 <img width="1138" height="188" alt="image" src="https://github.com/user-attachments/assets/270e1106-e760-413c-8131-baf81dfdf6cc" />
 
+Bach, JS - BWV-0887 No-18 Well Tempered Clavier
+
+Bach, JS - BWV-0887 No-18 Well Tempered Clavier.mid
+
+https://youtu.be/IBdOxARF3GM
+
+<img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/cc90215b-fa4c-4d23-be2e-4f43c2fb389b" />
+
+
 
 JossePe Verdi V S 
 
